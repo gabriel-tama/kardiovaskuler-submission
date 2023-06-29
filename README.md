@@ -1,1 +1,0 @@
-Laporan submission Deteksi Penyakit Kardiovaskuler
